@@ -7,6 +7,6 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on ... Autonomous and AI Systems
 - 🤔 I’m looking for help with ... 
 - 💬 Ask me about ... Anything
-- 📫 How to reach me: ... linkedin.com/in/crisvr
+- 📫 How to reach me: ... [LinkedIn](linkedin.com/in/crisvr)
 - 😄 Pronouns: ... He/Him
 - ⚡ Fun fact: ... 
